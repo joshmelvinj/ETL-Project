@@ -17,3 +17,11 @@ https://gasprices.aaa.com/state-gas-price-averages/
 https://www.businessinsider.com/average-spending-on-commute-how-much-money-2019-7#west-virginia-200381-1
 https://www.indexmundi.com/facts/united-states/quick-facts/all-states/average-commute-time#table
 https://www.streetlightdata.com/wp-content/uploads/2018/03/Commutes-Across-America_180201.pdf
+
+My study here is not me implying that I believe everyone needs to ride a bike to work. However, this is a suggestion that could help you put some more money in the bank (or go blow more money at the casino, travel more, take your favorite peron to a bunch more nice dinners, etc).
+
+There are many people that can't stand cyclist, and I can agree that there are those few who give the rest of us a bad wrap. Here is an article on Medium that gives the counter argument against cycling to work. Lucky for you, I can argue the opposite way on about 7 out of 8 of the points made by this article:
+
+https://medium.com/@aarontsuru/8-reasons-you-should-definitely-not-ride-your-bike-to-work-120ca800e18e
+
+Anyways, if you live in the USA, check my clean data out and see if the number you could save is high enough to convince you that sitting in traffic everyday is no longer going to be a thing for you (weather permitting).
