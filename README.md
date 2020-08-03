@@ -20,10 +20,10 @@ https://www.businessinsider.com/average-spending-on-commute-how-much-money-2019-
 https://www.indexmundi.com/facts/united-states/quick-facts/all-states/average-commute-time#table
 https://www.streetlightdata.com/wp-content/uploads/2018/03/Commutes-Across-America_180201.pdf
 
-My study here is not me implying that I believe everyone needs to ride a bike to work. However, this is a suggestion that could help you put some more money in the bank (or go blow more money at the casino, travel more, take your favorite peron to a bunch more nice dinners, etc).
+My study here is not intended to imply that everyone needs to ride a bike to work. However, this could be an intriguing suggestion that may help you put some more money in the bank (or...go blow money at the casino, travel, take your favorite peron to a $2,000-$5,000 dinner, etc).
 
-There are many people that can't stand cyclist, and I can agree that there are those few who give the rest of us a bad wrap. Here is an article on Medium that gives the counter argument against cycling to work. Lucky for you, I can argue the opposite way on about 7 out of 8 of the points made by this article:
+There are many people that can't stand cyclists, and I can agree that there are those few who give the rest of us a bad wrap. Here is an article on Medium that gives the argument against cycling to work. Lucky for you, I can debate the opposite side on about 7 out of 8 of the points made by this article:
 
 https://medium.com/@aarontsuru/8-reasons-you-should-definitely-not-ride-your-bike-to-work-120ca800e18e
 
-Anyways, if you live in the USA, check my clean data out and see if the number you could save is high enough to convince you that sitting in traffic everyday is no longer going to be a thing for you (weather permitting).
+Anyways, if you live in the USA, check my clean data out and see if the number you could save is high enough to convince you that sitting in traffic everyday is no longer going to be a daily activity for you (weather permitting).
