@@ -1,6 +1,6 @@
 # ETL-Project
 
-
+<img src="/Users/grizzlyjenkins/Personal Documents/WashU/ETL PROJECT/bike_to_work.jpg">
 
 For my project, I am combining data surrounding commuting to work. Different aspects I have put under the microscope include:
 
