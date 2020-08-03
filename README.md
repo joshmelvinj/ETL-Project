@@ -1,6 +1,6 @@
 # ETL-Project
 
-<img src="images/bike_to_work.jpg">
+<img src="images/bike_to_work.png">
 
 For my project, I am combining data surrounding commuting to work. Different aspects I have put under the microscope include:
 
